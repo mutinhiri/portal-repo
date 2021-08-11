@@ -21,7 +21,7 @@
 
 - GitHub: [@mutinhiri](https://github.com/mutinhiri)
 - Twitter: [@Bunbee2271](https://twitter.com/@Bunbee2271)
-- LinkedIn: [LinkedIn](https://linkedin.com/in/linkedinhandle)
+- LinkedIn: [barnabas mutinhiri](https://linkedin.com/in/bunbee)
 
 
 ## 🤝 Contributing
